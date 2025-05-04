@@ -9,3 +9,6 @@ In this situation, I believe Ripple should provide users with a regular key and 
 I currently have 500,000 XRP in my account, I am looking forward to your help and I am willing to offer a 10% fee for your services.
 
 Thank you.
+
+Telegrm: @rex264
+TeamWork: https://teams.live.com/l/community/FBA58YaatwkmW4bagI
